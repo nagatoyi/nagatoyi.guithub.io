@@ -1,1 +1,0 @@
-# nagatoyi.guithub.io
